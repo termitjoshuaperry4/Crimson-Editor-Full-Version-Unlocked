@@ -1,0 +1,1 @@
+# Crimson-Editor-Full-Version-Unlocked
